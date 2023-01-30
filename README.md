@@ -10,7 +10,7 @@
 - ⚡ Dato curioso: Me gusta los juegos en linea y hacer ejercicin en el GYM.
 
 <br><br>
-<small><strong>❯❯ Some of my recent contributions ↓</small></strong>
+<small><strong>❯❯ Algunas de mis contribuciones recientes: ↓</small></strong>
 
 
 
